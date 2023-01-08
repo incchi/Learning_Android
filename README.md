@@ -1,2 +1,2 @@
 # Learning_Android
-#not something uaeful just working on me!
+#not anything useful for you :) me working on me!
